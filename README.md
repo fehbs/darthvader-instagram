@@ -1,6 +1,6 @@
 ## Hi people, how are you doing?
 ### Who here likes Star Wars? 
-### The Dark side is beautiful and full of love!!! I feeling! And you you?
+### The Dark side is beautiful and full of love!!! I feeling! And you?
 
 
 ##
